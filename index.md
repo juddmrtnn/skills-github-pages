@@ -55,9 +55,6 @@ strong men create good times.”
 “Are you just a figurehead?”
 - One Piece Luffy
 
-“Confidence and competence, it’s a loop. The more competent you are the more confident you become”
-- 
-
 “Which way does a tree fall? The tree falls the way it leans. Be careful which way you lean.”
 - Lorax
 
