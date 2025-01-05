@@ -46,10 +46,6 @@ strong men create good times.”
 “Some of the most effective people are those that make their bed in the morning.”
 - Diary of a CEO
 
-I think of organizing as eyes. Without it we can’t see the future. We can exert all our effort chopping down the wrong trees, when we could’ve chopped down the truly essential and have days to spare.
-
-“Practicing caution in this thing called life is lit”
-
 “In this world, the strongest ones are those who are smiling!”
 - MHA
 
@@ -58,9 +54,6 @@ I think of organizing as eyes. Without it we can’t see the future. We can exer
 
 “Are you just a figurehead?”
 - One Piece Luffy
-
-“Confidence and competence, it’s a loop. The more competent you are the more confident you become”
-- 
 
 “Which way does a tree fall? The tree falls the way it leans. Be careful which way you lean.”
 - Lorax
@@ -103,9 +96,6 @@ I think of organizing as eyes. Without it we can’t see the future. We can exer
 
 “It’s real weakness to want to be liked.”
 - Elon Musk
-
-“--”
-- Steve Jobs
 
 “If we can’t tell each other hard truths, then what are we doing.”
 
